@@ -54,7 +54,7 @@
 
 ### 📫 Connect With Me
 
-- 📍 Mandi, India  
+- 📍 Bengaluru, India  
 - 📧 [dataneverlie3@gmail.com](mailto:dataneverlie3@gmail.com)  
 - 🔗 [LinkedIn](https://www.linkedin.com/in/prashant-singh-g-47a85b2b2)
 
